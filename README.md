@@ -17,4 +17,4 @@ https://SadboiTay.github.io/code-refactor/
 ## Contribution
 Optimized for Accessibility by Taylor Hakes
 
-### 2019 Horiseon Social Solution Services, Inc.
+### ©️2019 Horiseon Social Solution Services, Inc.
